@@ -1,2 +1,2 @@
-Click to download.
-  DC bot (程式碼 by洋蔥)
+Click to download.  
+DC bot (程式碼 by洋蔥)
